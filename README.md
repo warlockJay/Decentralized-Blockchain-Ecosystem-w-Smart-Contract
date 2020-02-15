@@ -22,5 +22,4 @@ For any queries please right to jayantbala21@yahoo.com.
 Happy coding.
 
 
-Best Regards,
-Jayant Bala
+
